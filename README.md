@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Muhammad Rizky, im a passionated learned about cloud computing
+I'm Muhammad Rizky, I'm a passionated learned about cloud computing
 
 
 ✨GET TO KNOW ME
