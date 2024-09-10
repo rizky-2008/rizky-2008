@@ -17,4 +17,4 @@ I'm Muhammad Rizky, I'm a passionated learned about cloud computing
 - ⚡ Fun fact: I like to learn something new
 
 
-             Thank You For Vitisig My Page
+             Thank You For Visiting My Page
